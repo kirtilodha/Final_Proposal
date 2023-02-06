@@ -15,7 +15,7 @@
 
 **GitHub:** [Github](https://github.com/kirtilodha) 
 
-**Resume -** [Resume](https://drive.google.com/file/d/1G9yI9Cr_GroTBbXYxrew6PJrKqmofI1z/view?usp=sharing)
+**Resume -** [Resume](https://drive.google.com/file/d/17rcowIejO_kCBAZaii-6kKbJHgiQIXmW/view?usp=sharing)
 
 **Primary Spoken Language:** English
 
